@@ -1,1 +1,1 @@
-# SAM-TECH---task-2
+(https://www.figma.com/design/izJbj2EG4Aj5d3YYqC19It/task-2-sam-tech?node-id=2204-3377&t=AamHK9epSZdCr8s7-1)
